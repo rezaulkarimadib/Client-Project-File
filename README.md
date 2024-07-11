@@ -269,7 +269,9 @@ https://otticamiro.it/
 
 Fashion & Beauty(5)
 ---------------------------
-https://www.vitalhat.com/  https://www.australiancosmeticinstitute.com.au/ https://hijabprintingbandung.com/ 
+https://www.vitalhat.com/  
+https://www.australiancosmeticinstitute.com.au/ 
+https://hijabprintingbandung.com/ 
 https://society-a.com/ 
 http://ss.art4web.co/
 http://www.zalonix.com/
